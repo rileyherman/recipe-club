@@ -12,9 +12,9 @@
 
  #### Directions
 
- - preheat oven to 350 F
- - fry cut pumpkin
- - toss in oil and spices
- - cook for 30 minutes
- - increase heat to 425 F and move to top rack
- - cook another 5 minutes until crispy
+ 1. preheat oven to 350 F
+ 2. fry cut pumpkin
+ 3. toss in oil and spices
+ 4. cook for 30 minutes
+ 5. increase heat to 425 F and move to top rack
+ 6. cook another 5 minutes until crispy
