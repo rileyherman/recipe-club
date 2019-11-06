@@ -32,11 +32,11 @@
 
  #### Directions
 
- - combine herbs and spices, coat chicken and set aside
- - in a skillet, bring olive oil to medium heat; add onions and garlic
- - once browned, add tomatoes and herbs, cook until liquid reduces by half
- - add black beans and simmer until desired thickness; remove from pan
- - in the same skillet, add olive oil and chicken
- - DON'T TOUCH IT until it's cooked halfway through
- - flip once and lime it
- - finish cooking and serve probably over rice
+ 1. combine herbs and spices, coat chicken and set aside
+ 2. in a skillet, bring olive oil to medium heat; add onions and garlic
+ 3. once browned, add tomatoes and herbs, cook until liquid reduces by half
+ 4. add black beans and simmer until desired thickness; remove from pan
+ 5. in the same skillet, add olive oil and chicken
+ 6. DON'T TOUCH IT until it's cooked halfway through
+ 7. flip once and lime it
+ 8. finish cooking and serve probably over rice

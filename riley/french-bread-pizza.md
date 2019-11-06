@@ -22,10 +22,10 @@
 
  #### Directions
 
- - mix everything for sauce and leave in the fridge overnight
- - preheat oven to 375 F
- - cut bread in half hotdog style
- - spread sauce over both open halves
- - cover in spinach, mushrooms, tomato, and cheese
- - bake for like 15 minutes
- - to reheat, bake at 375 for about 10 minutes and broil for about 5 minutes
+ 1. mix everything for sauce and leave in the fridge overnight
+ 2. preheat oven to 375 F
+ 3. cut bread in half hotdog style
+ 4. spread sauce over both open halves
+ 5. cover in spinach, mushrooms, tomato, and cheese
+ 6. bake for like 15 minutes
+ 7. to reheat, bake at 375 for about 10 minutes and broil for about 5 minutes
