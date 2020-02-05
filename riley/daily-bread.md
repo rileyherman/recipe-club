@@ -2,10 +2,10 @@
 
 #### Ingredients
 
- - 550g water
- - 2tsp salt
- - 2tsp yeast
- - 600g flour
+ - 550 g water
+ - 2 tsp salt
+ - 2 tsp yeast
+ - 600 g flour
  
  #### Special Equipment
  
