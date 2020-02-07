@@ -4,7 +4,7 @@
 ### Ingredients
 
 - Store bought pie crust
-- Chocolate Pudding Mix
+- Chocolate Pudding Mix or Pie Filling Mix (the kind where you just add milk)
 - Milk
 - Cool whip
 
@@ -16,5 +16,6 @@
 4. Let the pie crust cool. Maybe let the pudding sit in the fridge for a while. 
 5. Put the pudding in the pie crust.
 6. Put the cool whip on top of the pudding. 
-7. Great success!
+7. Keep the pie in the fridge.
+8. Great success!
 
