@@ -40,3 +40,5 @@ Pour on mint layer and put in fridge
 2. Make Minty Layer
 3. Make Chocolate Layer
 4. Great success
+
+#### Disclaimer: This is my mom's recipe. 
