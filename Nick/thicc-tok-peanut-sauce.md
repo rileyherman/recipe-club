@@ -1,4 +1,4 @@
-# Tik-Tok Peanut Sauce
+# Thicc-Tok Peanut Sauce
 
 #### Ingredients
 - Globe of Peanut Butter
