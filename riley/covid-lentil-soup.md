@@ -23,4 +23,6 @@
 
  #### Directions
 
- 1. idk make soup what more do you want from me
+ 1. saute onion, celery, jalepeno and garlic in soup pot
+ 2. add everything else (but lemons - they're just for serving)
+ 3. bring to boil and simmer until everything is cooked (potatoes probably take the longest so as long as they're soft you're good)
