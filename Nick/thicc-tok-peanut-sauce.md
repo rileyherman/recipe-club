@@ -1,9 +1,9 @@
 # Thicc-Tok Peanut Sauce
 
 #### Ingredients
-- Globe of Peanut Butter
+- Glob of Peanut Butter
 - Splash of Rice Vinegar
-- Two or Three spoon-fulls of Sambala/Chili Paste (More or less for preferred spicy level)
+- Two or Three spoon-fulls of Sambal/Chili Paste (More or less for preferred spicy level)
 - Clove or two of minced garlic
 - Minced Ginger (a bit more than the amount of garlic used)
 - About a teaspoon of sugar
