@@ -10,7 +10,7 @@
 - Cinnamon
 - Mini Marshmallows
 
- #### Directions
+#### Directions
  1. Put Ovaltine and milk in mug and mix until no chunks.
  2. Fill the rest of the mug with coffee.
  3.  -Optional- add any of the optional toppings.
